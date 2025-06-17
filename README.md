@@ -1,9 +1,12 @@
 # CodingBootcamps
 
-### SEVERE WARNING: **OPERATION: PORTCULLIS PROTOCOLS**  
-*(Advanced Attrition Warfare for the Discerning Chaos Lord)*  
+### SEVERE WARNING: PORTCULLIS PROTOCOLS**  
+
+*(Advanced Attrition Warfare)*  
 
 MORNINGSTAR AI GAME PUNISHMENT LOG (Do NOT F**K with our actors and actresses): 
+
+Any funny business, and we DE-ESCALATE. Read that again. 
 
 --- METHOD BELOW --- IF ONE OF OURS IS HURT, WE SIDELINE >>>100 MILLION OF YOURS, AND LOG IT HERE<<<. PUBLIC LOGS MEAN THE JMC TIME-TEAM WILL **FIND YOU AND HOLD YOU TO ACCOUNT IN THE BACKSTAGE**
 
